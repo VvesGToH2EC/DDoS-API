@@ -1,7 +1,7 @@
 # Information<br>
 🔥 https://rebirth-mirrors.net?ref=GITHUB | BEST LAYER 7 / LAYER 4 STRESSER | EASY TO USE API & WEBSITE. | GEOBLOCK BYPASS & MORE <br>
 <br>
-<a href="https://rebirth-mirrors.net?ref=GITHUB"><img src=""https://s6.imgcdn.dev/YFJltl.png" alt="pic" border="0"></a><br>
+<a href="https://rebirth-mirrors.net?ref=GITHUB"><img src="https://s6.imgcdn.dev/YFJltl.png" alt="pic" border="0"></a><br>
 <br>
 Features:<br>
 <br>
